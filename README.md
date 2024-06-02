@@ -14,7 +14,6 @@ Meu nome é Vitória
 ### Para entrar em contato comigo 📫
 martinezvivs16@gmail.com 
 
-
 @_vitoriasxx_
 
 ![](https://tenor.com/boH6l.gif)
